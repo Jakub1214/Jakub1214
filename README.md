@@ -1,7 +1,5 @@
 # Jakub1214
 # Sleep is GOATED
 ## 12
-###### damn
-### Ranked
-# HOVADKO 
-## CITY BOYYY
+# CITY BOYY
+
